@@ -22,7 +22,7 @@
 - Albany /ˈɔl bə ni/ [#3 l b N3 n Y]
 - already /ɔlˈrɛd i/ [#3 l r N3 d Y]
 - alternative /ɔlˈtɜr nə tɪv/ 
-- altother /ˌɔl təˈgɛð ər/
+- altogether /ˌɔl təˈgɛð ər/
 - Baltimore /ˈbɔl təˌmɔr/
 - falsefy /ˈfɔl sə faɪ/ 
 - overall /ˈoʊ vərˈɔl/
